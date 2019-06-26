@@ -1,5 +1,4 @@
-# open-calls
-Open Call resources for artists 
+# Open Call resources for artists 
 
 # Art Open Calls 
 Instagram account posting free & low cost open calls. https://www.instagram.com/artopencalls
